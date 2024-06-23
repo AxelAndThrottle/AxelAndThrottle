@@ -1,7 +1,7 @@
 -  Hi, I’m @AxelAndThrottle AKA Axel
 -  I’m interested in Anime
 -  I’m currently learning the drums
--  How to reach me; AxelAndThrottle#3809 on Discord
+-  How to reach me; Yksidax on Discord
 -  DNI if; ur racist, homophobic, sexist, misogonistic, ableist, transphobic, a pedophile or zoophile, if you hate cosplayers, if you disrespect triggers, pronouns or phobias, etc.
 -  INT if; You like MHA, if you hyperfixate easily on things like characters, foods or colors.
 -  Where to find me; If I'm not in the anime area... whisper me :)
